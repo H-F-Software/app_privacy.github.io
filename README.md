@@ -1,0 +1,1 @@
+appliication privacy pages
